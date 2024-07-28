@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @adithyasai28
+- 👋 Hi, I’m @adithya19
 - 👀 I’m interested in codind and want to explore new things...
 - 🌱 I’m currently learning .
 - 💞️ I’m looking to collaborate with like minded people..
